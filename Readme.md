@@ -1,7 +1,7 @@
 ### 𝐍𝐄𝐗𝐔𝐒 𝐒𝐏𝐀𝐌 𝐁𝐎𝐓
 
 <p align="center">
-  <img src="https://telegra.ph/file/98f3e01fcb05d98373cfc.jpg">
+  <img src="https://telegra.ph/file/3f12ea23cd46d6fd8c249.jpg">
 </p>
 
 # ᴄʀᴇᴀᴛᴏʀ
